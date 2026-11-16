@@ -1,0 +1,1 @@
+# soz-varligimiz-turkce-soru-bankasi-32
